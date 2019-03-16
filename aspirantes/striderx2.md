@@ -1,3 +1,3 @@
 r# Solicitud:
 
-Quiero destruir la legion del mal.
+Quiero acabar con la legion del mal.
